@@ -12,7 +12,7 @@ Step1)
 ![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%201/1.png)
 
 Step2)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%20/2.png)
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%201/2.png)
 
 Step3)
 ![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%201/3.png)
