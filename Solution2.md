@@ -30,65 +30,65 @@ Step1)
 ![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/1.png)
 
 Step2)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/2.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/2.png)
 
 Step3)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/3.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/3.png)
 
 Step4)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/4.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/4.png)
 
 Step5)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/5.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/5.png)
 
 Step6)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/6.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/6.png)
 
 Step7)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/7.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/7.png)
 
 Step8)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/8.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/8.png)
 
 Step9)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/9.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/9.png)
 
 Step10)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/10.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/10.png)
 
 # Task 2
 
 Step11)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/11.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/11.png)
 
 Step12)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/12.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/12.png)
 
 Step13)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/13.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/13.png)
 
 Step14)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/14.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/14.png)
 
 # Task 3
 
 Step15)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/15.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/15.png)
 
 Step16)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/16.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/16.png)
 
 Step17)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/17.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/17.png)
 
 Step18)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/18.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/18.png)
 
 Step19)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/19.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/19.png)
 
 Step20)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/20.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/20.png)
 
 Step21)
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/21.png
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%202/21.png)
