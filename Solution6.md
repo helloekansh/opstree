@@ -20,6 +20,10 @@ Step2)
 
 Step3)
 
+![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%206/3.png)
+
+Step4)
+
 ![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%206/4.png)
 
 Step5)
@@ -29,10 +33,6 @@ Step5)
 Step6)
 
 ![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%206/6.png)
-
-Step1)
-
-![alt text](https://github.com/helloekansh/opstree/blob/master/Media/Day%206/1.png)
 
 Step7)
 
